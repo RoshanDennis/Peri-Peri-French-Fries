@@ -1,0 +1,1 @@
+so we need peri peri powder,potatoes,french fry cutter and a chopping board.
